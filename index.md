@@ -1,3 +1,3 @@
-# Welcome to BradleyKneale.com
 - [Post 1](post1.md)
-## Post 2
+- [Post 2](post2.md)
+- [Post 3](post3.md)
