@@ -4,3 +4,6 @@
 
 *This is italic*
 **this is bold**
+
+
+![hello world](test.png)
