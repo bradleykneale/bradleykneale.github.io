@@ -1,3 +1,3 @@
-- [39 Weeks](post1.md)
-- [Post 2](post2.md)
-- [Post 3](post3.md)
+- [38 Weeks](post1.md)
+- [39 Weeks](post2.md)
+- [40 Weeks](post3.md)
