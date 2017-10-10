@@ -18,12 +18,15 @@ As Bradley was a little stressed in that last hour of labour, they decided to ke
 ![IMG_2199jpg](IMG_2199.jpg "IMG_2199.jpg")
 ## GOING HOME
 So we were finally given the all clear on day 4 and headed home at midday. It felt super surreal leaving the hospital with our new addition. We are now slowly settling into our new little life with Bradley and have throughly enjoyed cuddling and playing with him this week. He now has better control of his hands, is sleeping and feeding fairly well and loves loves LOVES to be held and cuddled. 
-![IMG_1843.jpg](IMG_1843.jpg "IMG_1843.jpg")
+![IMG_2378.JPG](IMG_2378.JPG "IMG_2378.JPG")
 ![IMG_1879.jpg](IMG_1879.jpg "IMG_1879.jpg")
 ![IMG_2020.jpg](IMG_2020.jpg "IMG_2020.jpg")
-![IMG_2378.JPG](IMG_2378.JPG "IMG_2378.JPG")
 ![IMG_2391.JPG](IMG_2391.JPG "IMG_2391.JPG")
 ![IMG_2330.jpg](IMG_2330.jpg "IMG_2330.jpg")
+![IMG_1843.jpg](IMG_1843.jpg "IMG_1843.jpg")
 ## BRADLEY'S FIRSTS
-Bath (Day 7), Outing to the local park (Day 7) and country music jam session (Day 4)
+Bath (Day 7), Outing to the local park (Day 7) and Country music jam session (Day 4)
 ![IMG_2091.jpg](IMG_2091.jpg "IMG_2091.jpg")
+## CELEBRATIONS OVERSEAS
+![IMG_2088.JPG](IMG_2088.JPG "IMG_2088.JPG")
+![IMG_2090.JPG](IMG_2090.JPG "IMG_2090.JPG")
