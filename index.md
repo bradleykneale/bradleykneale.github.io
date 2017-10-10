@@ -1,3 +1,3 @@
-- [38 Weeks](post1.md)
-- [39 Weeks](post2.md)
-- [40 Weeks](post3.md)
+- [THE LAST WEEKS OF PREGNANCY](post1.md)
+- [WEEK 1](post2.md)
+
