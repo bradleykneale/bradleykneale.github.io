@@ -6,5 +6,7 @@ Due to having gestational diabetes during pregnancy, Manly hospital were keen fo
 His full name is Bradley David Bobby Kneale. His weight is 3.61 kg (7.9 pounds) and height is 53 cm (21 inches). 
 ## OUR TIME IN HOSPITAL
 As Bradley was a little stressed in that last hour of labour, they decided to keep Bradley and me in for three nights. All tests came back fine and Pete and I quite enjoyed all the support and help we got from the midwifes in those first few days. I think it would have been a lot harder for us if we had to go home straight away. We learnt how to feed, wind and swaddle! Pete is now a swaddle pro! We also had Pete's parents visit us on Day 3 which was lovely. They got to see their first grandson and I got to have a rest! Everyone was happy.
+![IMG_2068.jpg](IMG_2068.jpg "IMG_2068.jpg")
+![IMG_2073.jpg](IMG_2073.jpg "IMG_2073.jpg")
 ## GOING HOME
 So we were finally given the all clear on day 4 and headed home at midday. It felt super surreal leaving the hospital with our new addition. We felt like we were playing parents with someone else's child. We are now slowly settling into our new little life with Bradley and have throughly enjoyed cuddling and playing with him this week. We managed our first little outing today (Day 7) to the park at the back of our house and have already introduced him to country music. He now has better control of his hands, is sleeping and feeding fairly well and loves loves LOVES to be held and cuddled. 
