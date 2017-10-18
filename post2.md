@@ -12,7 +12,6 @@ As Bradley was a little stressed in that last hour of labour, they decided to ke
 ![IMG_2113.jpg](IMG_2113.jpg "IMG_2113.jpg")
 ![IMG_2141.jpg](IMG_2141.jpg "IMG_2141.jpg")
 ![IMG_2151.jpg](IMG_2151.jpg "IMG_2151.jpg")
-![IMG_2153.jpg](IMG_2153.jpg "IMG_2153.jpg")
 ![IMG_2155.jpg](IMG_2155.jpg "IMG_2155.jpg")
 ![IMG_2182.jpg](IMG_2182.jpg "IMG_2182.jpg")
 ![IMG_2199jpg](IMG_2199.jpg "IMG_2199.jpg")
