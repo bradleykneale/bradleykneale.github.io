@@ -11,3 +11,4 @@ Bradley went on a few more adventures this week and is definitely taking after b
 ![IMG_2376.jpg](IMG_2376.jpg "IMG_2376.jpg")
 ## BRADLEY SAYS THANK YOU
 We'd like to say a BIG thank you for all the cards and gifts this past month. We really appreciate all the effort people have gone to, especially those overseas! 
+![IMG_3085.jpg](IMG_3085.jpg "IMG_3085.jpg")
