@@ -8,5 +8,7 @@ Bradley has continued to do well this week. Bradley is now more alert, is better
 ## BRADLEY'S FIRSTS
 Bradley went on a few more adventures this week and is definitely taking after both parents as he seems to enjoy the great outdoors. He visited Clontarf beach and Long Reef for the first time and even saw his first whale! Check out the photo below for the tiny whale splash in the distance. On a side note, Pete is getting used to having a little baby in the car now and Bradley usually nods off after a few minutes so journeys are pretty pleasant at the moment. 
 ![IMG_2997.jpg](IMG_2997.jpg "IMG_2997.jpg")
+![IMG_2367.jpg](IMG_2367.jpg "IMG_2367.jpg")
+![IMG_2376.jpg](IMG_2376.jpg "IMG_2376.jpg")
 ## BRADLEY SAYS THANK YOU
 We'd like to say a BIG thank you for all the cards and gifts this past month. We really appreciate all the effort people have gone to, especially those overseas! 
