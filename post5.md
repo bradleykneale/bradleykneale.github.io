@@ -1,6 +1,6 @@
-# WEEK 3
+# WEEK 4
 ## BRADLEY'S DEVELOPMENT
-Bradley has continued to do well this week. Bradley is now more alert, is better at tracking objects and faces and has started making more noises. He has also continued gaining more weight which is fantastic. We weighed him on Friday and he is now a whopping 4.2kg (up from the 3.77kg the previous week). Mum and dad are super happy he's on track. 
+Bradley has continued to do well this week. Bradley is now more alert, is better at tracking objects and faces and has started making more noises. He has also continued to gain more weight which is fantastic. We weighed him on Friday and he is now a whopping 4.2kg (up from the 3.77kg the previous week). Mum and dad are super happy he's on track. 
 ![IMG_2901.jpg](IMG_2901.jpg "IMG_2901.jpg")
 ![IMG_2958.jpg](IMG_2958.jpg "IMG_2958.jpg")
 ![IMG_2971.jpg](IMG_2971.jpg "IMG_2971.jpg")
