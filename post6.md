@@ -15,6 +15,5 @@ Both cousins are quite mesmerised by Bradley which is lovely to see. Doug points
 ## ACTIVITIES WITH BRADLEY
 Aside from the activities mentioned already, Bradley had two lovely visits from Pete's parents and went on another trip to Manly Dam this week. He's been a busy boy! We're all looking forward to using the pool soon. Only Paige has been brave enough to splash in it so far.
 ![IMG_3136.jpg](IMG_3136.jpg "IMG_3136.jpg")
-![IMG_3137.jpg](IMG_3137.jpg "IMG_3137.jpg")
 ![IMG_3170.jpg](IMG_3170.jpg "IMG_3170.jpg")
 ![IMG_3120.jpg](IMG_3120.jpg "IMG_3120.jpg")
