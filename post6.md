@@ -1,6 +1,6 @@
 # WEEK 5
 ## BRADLEY'S DEVELOPMENT
-Bradley is now making more eye contact and has even started to smile which brightens up my day. The nights are also getting a bit easier now that he settles down after a feed a little quicker.
+Bradley is now making more eye contact and has even started to smile which brightens up my day. The nights are also getting a bit easier as he is settling down a little quicker after feeds.
 ![IMG_3173.jpg](IMG_3173.jpg "IMG_3173.jpg")
 ## BRADLEY'S FIRSTS
 This week Bradley had his first visit from GrandDave, Aunty Donna and cousin Paige and Doug. They arrived early on Friday and despite the awful jet lag (poor Paige fell asleep in Bradley's bed), we've already managed to take Bradley to his first aquarium and park with a seesaw (Little Manly).
