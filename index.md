@@ -4,3 +4,4 @@
 - [WEEK 3](post4.md)
 - [WEEK 4](post5.md)
 - [WEEK 5](post6.md)
+- [WEEK 6](post7.md)
