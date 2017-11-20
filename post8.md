@@ -10,7 +10,7 @@ This week Bradley went on his first ferry to Watson’s Bay. He seemed pretty re
 ![IMG_3758.jpg](IMG_3758.jpg "IMG_3758.jpg")
 ![IMG_3687.jpg](IMG_3687.jpg "IMG_3687.jpg")
 
-Bradley also had his first pool party. Our friends came over to meet the little guy for the first time and Bradley was ever so spoilt with cards and gifts. Bradley did ever so well with all the noise and people and slept through a lot of it. Paige did really well in the pool with the other kids and swam two laps alone (with arm bands). 
+Bradley also had his first pool party. Our friends came over to meet the little guy for the first time and Bradley was ever so spoilt with cards and gifts. Bradley did well with all the noise and slept through a lot of it. Paige did really well in the pool with the other kids and swam two laps alone (with arm bands). 
 ![Photo1.jpg](Photo1.jpg "Photo1.jpg") 
 
 The family no longer have a cold so Bradley finally got his first proper cuddle from Bob.
@@ -24,5 +24,4 @@ Bradley has really enjoyed looking at Paige this week. Paige is still showing an
 ## BRADLEY SAYS THANK YOU
 We just want to say a big thanks for all the kind gifts this week. We would like to say an extra special thanks to Janet for her amazing handmade knitted gifts. We love them to bits.
 ![IMG_3118.JPG](IMG_3118.JPG "IMG_3118.JPG")
-![IMG_3977.jpg](IMG_3977.jpg "IMG_3977.jpg")
 
