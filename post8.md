@@ -23,5 +23,6 @@ Bradley has really enjoyed looking at Paige this week. Paige is still showing an
 
 ## BRADLEY SAYS THANK YOU
 We just want to say a big thanks for all the kind gifts this week. We would like to say an extra special thanks to Janet for her amazing handmade knitted gifts. We love them to bits.
+![IMG_3118.jpg](IMG_3118.jpg "IMG_3118.jpg")
 ![IMG_3977.jpg](IMG_3977.jpg "IMG_3977.jpg")
 
