@@ -9,7 +9,7 @@ Bradley had his first check up at the local GP this week. He is now 61cm tall (g
 This week Bradley went on his first ferry to Watson’s Bay. He seemed pretty relaxed on both journeys and Paige had a fab time too. She happily declared “I LOVE this” whilst out on top on the boat. Very sweet. Pete's mum Angela met us there and we all enjoyed the scenic park and beach. 
 ![IMG_3758.jpg](IMG_3758.jpg "IMG_3758.jpg")
 ![IMG_3687.jpg](IMG_3687.jpg "IMG_3687.jpg")
-
+![Photo1.jpg](Photo1.jpg "Photo1.jpg") 
 Bradley also had his first pool party. Our friends came over to meet the little guy for the first time and Bradley was ever so spoilt with cards and gifts. Bradley did ever so well with all the noise and people and slept through a lot of it. Paige did really well in the pool with the other kids and swam two laps alone (with arm bands). 
 ![Photo1.jpg](Photo1.jpg "Photo1.jpg") 
 
