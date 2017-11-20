@@ -11,7 +11,7 @@ This week Bradley went on his first ferry to Watson’s Bay. He seemed pretty re
 ![IMG_3687.jpg](IMG_3687.jpg "IMG_3687.jpg")
 
 Bradley also had his first pool party. Our friends came over to meet the little guy for the first time and Bradley was ever so spoilt with cards and gifts. Bradley did ever so well with all the noise and people and slept through a lot of it. Paige did really well in the pool with the other kids and swam two laps alone (with arm bands). 
-![IMG_4044.jpg](IMG_4044.jpg "IMG_4044.jpg") 
+![Photo1.jpg](Photo1.jpg "Photo1.jpg") 
 
 The family no longer have a cold so Bradley finally got his first proper cuddle from Bob.
 ![IMG_3856.jpg](IMG_3856.jpg "IMG_3856.jpg")
