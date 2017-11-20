@@ -5,7 +5,7 @@ Bradley had his first check up at the local GP this week. He is now 61cm tall (g
 ![IMG_4066.jpg](IMG_4066.jpg "IMG_4066.jpg")
 ![IMG_4080.jpg](IMG_4080.jpg "IMG_4080.jpg")
 ## BRADLEY'S FIRSTS
-This week Bradley went on his first ferry to Watson’s Bay. He seemed pretty relaxed on both journeys and Paige had a fab time and declared “I LOVE this” whilst out on top on the boat. Pete's mum Angela met us there and we all enjoyed the scenic park and beach. 
+This week Bradley went on his first ferry to Watson’s Bay. He seemed pretty relaxed on both journeys and Paige had a fab time too. She happily declared “I LOVE this” whilst out on top on the boat. Very sweet. Pete's mum Angela met us there and we all enjoyed the scenic park and beach. 
 ![IMG_3758.jpg](IMG_3758.jpg "IMG_3758.jpg")
 ![IMG_3687.jpg](IMG_3687.jpg "IMG_3687.jpg")
 Bradley also had his first pool party. Our friends came over to meet the little guy for the first time and Bradley was ever so spoilt with cards and gifts. Bradley did ever so well with all the noise and people and slept through a lot of it. Paige did really well in the pool with the other kids and swam two laps alone (with arm bands). 
@@ -13,7 +13,7 @@ Bradley also had his first pool party. Our friends came over to meet the little 
 The family no longer have a cold so Bradley finally got his first proper cuddle from Bob this week as well.
 ![IMG_3856.jpg](IMG_3856.jpg "IMG_3856.jpg")
 ## BRADLEY AND PAIGE
-Bradley has really enjoyed looking at Paige this week. Paige is still showing an interest in him and has been a great cousin this week giving him lots of gentle strokes and pats.
+Bradley has really enjoyed looking at Paige this week. Paige is still showing an interest in him and has been a great cousin this week by giving him lots of gentle strokes and pats.
 ![IMG_4011.jpg](IMG_4011.jpg "IMG_4011.jpg")
 ![IMG_4094.jpg](IMG_4094.jpg "IMG_4094.jpg")
 ## BRADLEY SAYS THANK YOU
