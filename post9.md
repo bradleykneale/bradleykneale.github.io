@@ -14,3 +14,4 @@ Bradley attended his first Volleyfest event this week in Manly. He also had his 
 This week we have all had a lot of fun sailing at Manly Dam, playing at Clontarf Beach and splashing around in the pool at home. 
 ![IMG_4145.jpg](IMG_4145.jpg "IMG_4145.jpg")
 ![IMG_4239.jpg](IMG_4239.jpg "IMG_4239.jpg")
+![IMG_4193.jpg](IMG_4193.jpg "IMG_4193.jpg")
