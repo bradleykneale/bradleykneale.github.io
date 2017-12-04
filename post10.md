@@ -6,7 +6,6 @@ Bradley has been a little fussier the last few days but he blessed me with a sup
 ![IMG_3624.jpg](IMG_3624.jpg "IMG_3624.jpg")
 ![IMG_4389.jpg](IMG_4389.jpg "IMG_4389.jpg")
 ![IMG_4507.jpg](IMG_4507.jpg "IMG_4507.jpg")
-![IMG_4451.jpg](IMG_4451.jpg "IMG_4451.jpg")
 ![IMG_3554.jpg](IMG_3554.jpg "IMG_3554.jpg")
 
 ## BRADLEY'S FIRSTS
