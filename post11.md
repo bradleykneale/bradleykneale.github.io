@@ -12,5 +12,6 @@ We had a few more exciting firsts this week. Bradley got into the Christmas spir
 
 ## ACTIVITIES WITH BRADLEY
 We all had a lovely time visiting the dam, Dee Why beach and Manly aquarium. 
+![IMG_4691.jpg](IMG_4691.jpg "IMG_4691.jpg")
 ![IMG_4724.jpg](IMG_4724.jpg "IMG_4724.jpg")
-![IMG_4999.jpg](IMG_4999.jpg "IMG_4999.jpg")
+
