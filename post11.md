@@ -5,7 +5,7 @@ We had Bradley’s final checkup this week post birth and thankfully the doctor 
 ![IMG_5021.jpg](IMG_5021.jpg "IMG_5021.jpg")
 
 ## BRADLEY'S FIRSTS
-We had a few more exciting firsts this week. Bradley got into the Christmas spirit this week and attended his first carol concert in Manly. He also met Santa for the first time which was very sweet. At home, Bradley got his first cuddle from grandad England. 
+Bradley got into the Christmas spirit this week and attended his first carol concert in Manly. He also met Santa for the first time which was very sweet. At home, Bradley got his first cuddle from GrandDave. 
 ![IMG_4771.jpg](IMG_4771.jpg "IMG_4771.jpg")
 ![IMG_3836.jpg](IMG_3836.jpg "IMG_3836.jpg")
 ![IMG_4794.jpg](IMG_4794.jpg "IMG_4794.jpg")
