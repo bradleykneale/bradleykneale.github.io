@@ -8,11 +8,9 @@ We had Bradley’s final checkup this week post birth and thankfully the doctor 
 We had a few more exciting firsts this week. Bradley got into the Christmas spirit this week and attended his first carol concert in Manly. He also met Santa for the first time which was very sweet. At home, Bradley got his first cuddle from grandad England. 
 ![IMG_4771.jpg](IMG_4771.jpg "IMG_4771.jpg")
 ![IMG_3836.jpg](IMG_3836.jpg "IMG_3836.jpg")
-![IMG_3823_v2.jpg](IMG_3823_v2.jpg "IMG_3823_v2.jpg")
 ![IMG_4794.jpg](IMG_4794.jpg "IMG_4794.jpg")
 
 ## ACTIVITIES WITH BRADLEY
 We all had a lovely time visiting the dam, Dee Why beach and Manly aquarium. 
 ![IMG_4724.jpg](IMG_4724.jpg "IMG_4724.jpg")
 ![IMG_4999.jpg](IMG_4999.jpg "IMG_4999.jpg")
-![IMG_3498.jpg](IMG_3498.jpg "IMG_3498.jpg")
