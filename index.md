@@ -9,3 +9,4 @@
 - [WEEK 8](post9.md)
 - [WEEK 9](post10.md)
 - [WEEK 10 - 12.12.17](post11.md)
+- [WEEK 11 - 19.12.17](post12.md)
