@@ -2,6 +2,10 @@
 ## A SAD FAREWELL
 We said farewell to the family at the very start of the week. We had a lovely last day together at home and were very sad to see them all go. 
 ![IMG_5591.jpg](IMG_5591.jpg "IMG_5591.jpg")
+![IMG_4526.jpg](IMG_4526.jpg "IMG_4526.jpg")
+![IMG_4433.jpg](IMG_4433.jpg "IMG_4433.jpg")
+![IMG_4537.jpg](IMG_4537.jpg "IMG_4537.jpg")
+![IMG_4581.jpg](IMG_4581.jpg "IMG_4581.jpg")
 
 After they’d gone, Pete discovered a humungous pile of presents that had been left for Bradley’s future birthdays and christmases. I ……. I mean Bradley….can’t wait to open them!
 Pete, Bradley and I would like to say a HUGE thank you to Dad, Bob, Paige and Doug for visiting. We had an amazing time xxx
