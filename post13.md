@@ -1,9 +1,10 @@
 # WEEK 12 (26.12.17)
 ## A SAD FAREWELL
 We sadly said farewell to the family at the very start of the week. We had a lovely last day together at home and were very sad to see them all go. 
+![IMG_5591.jpg](IMG_5591.jpg "IMG_5591.jpg")
+
 After they’d gone, Pete discovered a humungous pile of presents that had been left for Bradley’s future birthdays and christmases. I ……. I mean Bradley….can’t wait to open them!
 Pete, Bradley and I would like to say a HUGE thank you to Dad, Bob, Paige and Doug for visiting. We had an amazing time xxx
-![IMG_5591.jpg](IMG_5591.jpg "IMG_5591.jpg")
 ![IMG_5639.jpg](IMG_5639.jpg "IMG_5639.jpg")
 ![IMG_5645.jpg](IMG_5645.jpg "IMG_5645.jpg")
 
