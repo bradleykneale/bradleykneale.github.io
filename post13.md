@@ -1,6 +1,6 @@
 # WEEK 12 (26.12.17)
 ## A SAD FAREWELL
-We sadly said farewell to the family at the very start of the week. We had a lovely last day together at home and were very sad to see them all go. 
+We said farewell to the family at the very start of the week. We had a lovely last day together at home and were very sad to see them all go. 
 ![IMG_5591.jpg](IMG_5591.jpg "IMG_5591.jpg")
 
 After they’d gone, Pete discovered a humungous pile of presents that had been left for Bradley’s future birthdays and christmases. I ……. I mean Bradley….can’t wait to open them!
@@ -17,7 +17,6 @@ Bradley had his first Christmas gathering with Pete’s school friends this week
 
 We had a delicious Christmas Eve lunch in Terry Hills with Vikki + Sal’s family. The only downside was that it was a whopping 41 degrees! Bradley’s hottest day so far! We kept him naked and in the shade most of the time...he coped so well. He did much better than mummy! 
 ![IMG_5659.jpg](IMG_5659.jpg "IMG_5659.jpg")
-![IMG_5676.jpg](IMG_5676.jpg "IMG_5676.jpg")
 
 Angela and George came over for Bradley’s first Christmas day. The day was quite overcast so we spent the whole time indoors. We were all very happy about the change in weather! We opened a couple of presents, had burgers for lunch and then had fun dressing Bradley up in a festive outfit. So cute!
 ![Xmas.jpg](Xmas.jpg "Xmas.jpg")
