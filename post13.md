@@ -20,7 +20,4 @@ We had a delicious Christmas Eve lunch in Terry Hills with Vikki + Sal’s famil
 ![IMG_5676.jpg](IMG_5676.jpg "IMG_5676.jpg")
 
 Angela and George came over for Bradley’s first Christmas day. The day was quite overcast so we spent the whole time indoors. We were all very happy about the change in weather! We opened a couple of presents, had burgers for lunch and then had fun dressing Bradley up in a festive outfit. So cute!
-![IMG_5286.jpg](IMG_5286.jpg "IMG_5286.jpg")
 ![Xmas.jpg](Xmas.jpg "Xmas.jpg")
-![IMG_5280.jpg](IMG_5280.jpg "IMG_5280.jpg")
-![IMG_5261.jpg](IMG_5261.jpg "IMG_5261.jpg")
