@@ -5,7 +5,6 @@ Bradley is now enjoying tummy time (for little bits at a time). He LOVES his bri
 ![IMG_5211.jpg](IMG_5211.jpg "IMG_5211.jpg")
 ![IMG_5971.jpg](IMG_5971.jpg "IMG_5971.jpg")
 ![IMG_5814.jpg](IMG_5814.jpg "IMG_5814.jpg")
-![IMG_5827.jpg](IMG_5827.jpg "IMG_5827.jpg")
 
 His speech is also coming along nicely. He makes A LOT of different sounds now and loves to have a natter. 
 ![IMG_5989.jpg](IMG_5989.jpg "IMG_5989.jpg")
