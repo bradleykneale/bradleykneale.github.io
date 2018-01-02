@@ -1,4 +1,4 @@
-# WEEK 13 (02.01.18)
+# WEEK 13 (26.12.17)
 
 ## BRADLEY'S DEVELOPMENT
 Bradley is now enjoying tummy time (for little bits at a time). He LOVES his brightly coloured animal book and is enjoying grasping at rattles, cups and scarfs. He is definitely starting to be a lot more interested in the world around him which is lovely to see. 
