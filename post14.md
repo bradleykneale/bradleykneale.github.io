@@ -14,7 +14,7 @@ Bradley is now nearly three months old and I can't believe how much he has grown
 
 ## BRADLEY'S FIRSTS
 Bradley painted his first masterpiece this week. Look how proud he is!
-![IMG_5077.jpg](IMG_5077.jpg "IMG_5077.jpg")
+![IMG_5079.jpg](IMG_5079.jpg "IMG_5079.jpg")
 
 ## ACTIVITIES WITH BRADLEY
 Post Christmas, we have visited Manly, Shelley Beach (a first for Bradley) and Curl Curl Beach. George and Angela joined us on our expedition to Shelley Beach and have been a great help this week.
