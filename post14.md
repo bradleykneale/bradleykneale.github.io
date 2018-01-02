@@ -11,7 +11,6 @@ His speech is also coming along nicely. He makes A LOT of different sounds now a
 ![IMG_5989.jpg](IMG_5989.jpg "IMG_5989.jpg")
 
 Bradley is now nearly three months old and I can't believe how much he has grown up already.
-![IMG_3065-COLLAGE.jpg](IMG_3065-COLLAGE.jpg "IMG_3065-COLLAGE.jpg")
 ![IMG_5174.jpg](IMG_5174.jpg "IMG_5174.jpg")
 
 ## BRADLEY'S FIRSTS
@@ -25,6 +24,6 @@ Post Christmas, we have visited Manly, Shelley Beach (a first for Bradley) and C
 ![IMG_5042.jpg](IMG_5042.jpg "IMG_5042.jpg")
 
 I’ve also enjoyed taking more ‘studio’ style photographs of Bradley. That’s been keeping me entertained.
-![IMG_4883 1.jpg](IMG_4883 1.jpg "IMG_4883 1.jpg")
-![IMG_4940 1.jpg](IMG_4940 1.jpg "IMG_4940 1.jpg")
+![IMG_4883.jpg](IMG_4883.jpg "IMG_4883.jpg")
+![IMG_4940.jpg](IMG_4940.jpg "IMG_4940.jpg")
 ![IMG_5132.jpg](IMG_5132.jpg "IMG_5132.jpg")
