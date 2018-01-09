@@ -6,12 +6,12 @@ Bradley is now three months old and weighed in at 6.72kg this week. I rely on my
 ![IMG_5375.jpg](IMG_5375.jpg "IMG_5375.jpg")
 
 Bradley is getting great at grasping and picking up and continues to chat throughout the day. We are now getting into more of a routine with naps (4 a day) and bedtime (7.30-8pm). We are also learning more about what he likes. At the moment, he adores his butterfly teddy, bee tambourine and two big colourful books. He enjoys songs, stories, splashing in the bath and bouncing in his bouncer. He’s a true delight! 
-![IMG_6453.jpg](IMG_6453.jpg "IMG_6453.jpg")
 ![IMG_6184.jpg](IMG_6184.jpg "IMG_6184.jpg")
 ![IMG_5416.jpg](IMG_5416.jpg "IMG_5416.jpg")
 
 ## THIS WEEK WITH BRADLEY
 As you may have seen in the news, Sydney has had a HOT week. We have been indoors most days and have kept cool in the swimming pool. George and Angela stayed at the weekend and did wonders in the garden. Weeds are gone. Hedges have been trimmed. It looks fantastic. They also helped a lot with little Bradley which gave me the chance to have a few swims! 
+![IMG_6453.jpg](IMG_6453.jpg "IMG_6453.jpg")
 
 Pete and I also dabbled with DIY this week and made up a toy display for Bradley. I’m super happy with the result. I’m sure all the toys will be on the floor when he gets a little older so I’ll enjoy the neatness now whilst I can.
 ![IMG_6392.jpg](IMG_6392.jpg "IMG_6392.jpg")
