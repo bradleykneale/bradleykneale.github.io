@@ -1,14 +1,12 @@
 # WEEK 14 (02.01.18)
 
 ## BRADLEY'S DEVELOPMENT
-Bradley is now three months old and weighed in at 6.72kg this week. I rely on my sling now to carry him around the house as I now find him too heavy without one. 
+Bradley is now three months old and weighed in at 6.72kg this week. I rely on my sling now to carry him around the house as he's too heavy without one. 
 ![IMG_5274.jpg](IMG_5274.jpg "IMG_5274.jpg")
 ![IMG_5375.jpg](IMG_5375.jpg "IMG_5375.jpg")
-![IMG_5420.jpg](IMG_5420.jpg "IMG_5420.jpg")
 
 Bradley is getting great at grasping and picking up and continues to chat throughout the day. We are now getting into more of a routine with naps (4 a day) and bedtime (7.30-8pm). We are also learning more about what he likes. At the moment, he adores his butterfly teddy, bee tambourine and two big colourful books. He enjoys songs, stories, splashing in the bath and bouncing in his bouncer. He’s a true delight! 
 ![IMG_6453.jpg](IMG_6453.jpg "IMG_6453.jpg")
-![IMG_6488.jpg](IMG_6488.jpg "IMG_6488.jpg")
 ![IMG_6184.jpg](IMG_6184.jpg "IMG_6184.jpg")
 ![IMG_5416.jpg](IMG_5416.jpg "IMG_5416.jpg")
 
