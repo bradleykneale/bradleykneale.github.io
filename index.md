@@ -12,4 +12,4 @@
 - [WEEK 11 - 12.12.17](post12.md)
 - [WEEK 12 - 19.12.17](post13.md)
 - [WEEK 13 - 26.12.17](post14.md)
-- [WEEK 14 - 26.12.17](post15.md)
+- [WEEK 14 - 02.01.18](post15.md)
