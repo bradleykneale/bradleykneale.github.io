@@ -4,7 +4,7 @@
 This week Bradley did his first little laugh...at daddy. It was adorable! Bradley has also been doing more rolling onto his side and holding onto his feet. 
 ![IMG_6584.jpg](IMG_6584.jpg "IMG_6584.jpg")
 ![IMG_5623.jpg](IMG_5623.jpg "IMG_5623.jpg")
-![IMG_6625.JPG](IMG_6625.JPG "IMG_6625.JPG")
+![IMG_6619.JPG](IMG_6619.JPG "IMG_6619.JPG")
 
 He is now taking notice of bubbles and really enjoys his colourful books at the moment so I popped out to the charity shop this week to get a few more. This touchy car book was an instant hit.
 ![IMG_6609.jpg](IMG_6609.jpg "IMG_6609.jpg")
