@@ -4,7 +4,7 @@
 This week Bradley did his first little laugh...at daddy. It was adorable! Bradley has also been doing more rolling onto his side and grasping and holding onto his feet. 
 ![IMG_6584.jpg](IMG_6584.jpg "IMG_6584.jpg")
 ![IMG_5623.jpg](IMG_5623.jpg "IMG_5623.jpg")
-![IMG_5567.jpg](IMG_5567.jpg "IMG_5567.jpg")
+![IMG_6625.jpg](IMG_6625.jpg "IMG_6625.jpg")
 
 He is now taking notice of bubbles and really enjoys his colourful books at the moment so I popped out to the charity shop this week to get a few more. This touchy car book was an instant hit.
 ![IMG_6609.jpg](IMG_6609.jpg "IMG_6609.jpg")
@@ -19,3 +19,4 @@ This week we celebrated Patrick’s birthday by going over to George and Angela�
 
 Over the past few days, I’ve been busy researching and making sensory toys for Bradley. I’ve made a couple of shakers so far which he seems to like and be interested in. I have a lot more to try in the weeks ahead. Thanks to Laura and Bobs homeschooling resources, I’ve also been researching activities that Bradley and I can do together when he gets a little older. I have programming tutorials and a space station role play pack ready to go. I can’t wait! 
 ![IMG_6757.jpg](IMG_6757.jpg "IMG_6757.jpg")
+![IMG_5567.jpg](IMG_5567.jpg "IMG_5567.jpg")
