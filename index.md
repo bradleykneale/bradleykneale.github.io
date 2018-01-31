@@ -15,3 +15,4 @@
 - [WEEK 14 - 02.01.18](post15.md)
 - [WEEK 15 - 09.01.18](post16.md)
 - [WEEK 16 - 16.01.18](post17.md)
+- [WEEK 17 - 23.01.18](post18.md)
