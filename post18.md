@@ -10,4 +10,5 @@ This week George and Angela visited and I had a few nice catch ups with other lo
 ![IMG_7047.jpg](IMG_7047.jpg "IMG_7047.jpg")
 
 On a side note, Bradley and I would like to say a big thank you for the gifts from Mum, Liz, Grannie and Bob this week. Bradley adores the Spot book from Liz and loves the musical instruments from Grannie. We sing A LOT of songs every day so these instruments really help to brighten up the sing song sessions. The play thing for the bouncer is also a big hit so thank you for that Bob.
+![IMG_6032.jpg](IMG_6032.jpg "IMG_6032.jpg")
 ![IMG_7094.jpg](IMG_7094.jpg "IMG_7094.jpg")
