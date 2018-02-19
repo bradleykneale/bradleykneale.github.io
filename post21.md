@@ -5,7 +5,7 @@ This week Bradley had this four month jabs. Apart from the initial cries, he did
 ![IMG_7347.jpg](IMG_7347.jpg "IMG_7347.jpg")
 
 Bradley is really into his books at the moment, especially the Spot books. He squeals with delight when being read a Spot book. It’s pretty adorable. A big thanks again to Liz and Bob for the Spot books. 
-![IMG_7347.jpg](IMG_7347.jpg "IMG_7347.jpg")
+![IMG_7604.jpg](IMG_7604.jpg "IMG_7604.jpg")
 
 Bradley had his first Bumbo seat experience this week. Sadly he is a little too chubby (leg wise) for it but manages to squeeze in without a nappy. Bless! 
 ![IMG_7347.jpg](IMG_7347.jpg "IMG_7347.jpg")
@@ -15,7 +15,10 @@ Cousin Adam arrived this week on Valentine’s Day. We all met him at Manly whar
 ![IMG_6250.jpg](IMG_6250.jpg "IMG_6250.jpg")
 
 After Adam left for Perth, we celebrated Angela’s birthday, did more exploring down at the Dam and Forty Baskets Beach. He also dipped his feet in the sea at Manly for the first time with his Daddy. 
-![IMG_6250.jpg](IMG_6250.jpg "IMG_6250.jpg")
+![IMG_7566.jpg](IMG_7566.jpg "IMG_7566.jpg")
+![IMG_7689.jpg](IMG_7689.jpg "IMG_7689.jpg")
+![IMG_7738.jpg](IMG_7738.jpg "IMG_7738.jpg")
 
 Bradley still really enjoys his bath time. He is really kicky now so a lot of the water gets splashed out. He loves playing with his flannel, ducky and silver teapot. Thanks for those items Bob! 
-![IMG_6250.jpg](IMG_6250.jpg "IMG_6250.jpg")
+![IMG_7486.jpg](IMG_7486.jpg "IMG_7486.jpg")
+![IMG_7629.jpg](IMG_7629.jpg "IMG_7629.jpg")
