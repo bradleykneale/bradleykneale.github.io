@@ -18,3 +18,4 @@
 - [WEEK 17 - 23.01.18](post18.md)
 - [WEEK 18 - 30.01.18](post19.md)
 - [WEEK 19 - 06.02.18](post20.md)
+- [WEEK 20 - 13.02.18](post21.md)
