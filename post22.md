@@ -16,4 +16,4 @@ We said farewell to our two lovely visitors this week - Mum and Adam. Before the
 We also had a lovely last swim with Mum & Adam before Adam's flight and a sunny walk with Mum to the Dam before her flight....
 ![IMG_6633.jpg](IMG_6633.jpg "IMG_6633.jpg")
 ![IMG_7820.jpg](IMG_7820.jpg "IMG_7820.jpg")
-![IMG_6745.jpg](IMG_6745.jpg "IMG_6745.jpg")
+![002.jpg](002.jpg "002.jpg")
