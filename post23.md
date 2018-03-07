@@ -2,6 +2,8 @@
 
 ## BRADLEY'S DEVELOPMENT
 Bradley turned five months this week! My little baby is growing up so fast. 
+![005.jpg](005.jpg "005.jpg")
+![IMG_6938.jpg](IMG_6938.jpg "IMG_6938.jpg")
 ![IMG_6776.jpg](IMG_6776.jpg "IMG_6776.jpg")
 
 Bradley is now enjoying standing up (with assistance). He smiles and laughs every time he does it. He is able to take his weight but needs help balancing. 
