@@ -5,7 +5,6 @@ Bradley turned five months this week! My little baby is growing up so fast.
 ![IMG_6776.jpg](IMG_6776.jpg "IMG_6776.jpg")
 
 Bradley is now enjoying standing up (with assistance). He smiles and laughs every time he does it. He is able to take his weight but needs help balancing. 
-![IMG_7774.jpg](IMG_7774.jpg "IMG_7774.jpg")
 
 Bradley is sadly getting bored of and a bit too big for his bouncer. He leans over to get out as soon as I put him in. I’m finding it a little tough as he’s not sitting yet and there is only so much lying down a baby can do. 
 ![003.jpg](003.jpg "003.jpg")
