@@ -17,7 +17,7 @@ Bradley and I attended a baby massage class with my mothers group this week. He 
 
 At the weekend, Bradley got a new car seat. It’s a lot more roomy so he seems a little happier in it (although he still doesn’t like being in the seat for too long). We visited Carlos and Eszter as well as George and Angela this weekend too. Busy busy busy! 
 ![IMG_8199.jpg](IMG_8199.jpg "IMG_8199.jpg")
-![IMG_82080.jpg](IMG_82080.jpg "IMG_82080.jpg")
+![IMG_82080.JPG](IMG_82080.JPG "IMG_82080.JPG")
 
 Yesterday we had a lovely passing visit from Aunty Jean. We met her in Manly and had a sunny stroll down to Shelley beach. Bradley was his usual smiley self with her so that was great. 
 ![IMG_82830.jpg](IMG_82830.jpg "IMG_82830.jpg")
