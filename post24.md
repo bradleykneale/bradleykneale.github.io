@@ -11,6 +11,7 @@ New foods this week include cauliflower, peas and green beans. All eaten! Banana
 ![IMG_8156.jpg](IMG_8156.jpg "IMG_8156.jpg")
 
 Bradley now bathes in the big adult bath! He was getting a bit too big and splashy for the baby bath. He enjoys splashing around with all the colourful cups and mummy likes not having mop up after very bath now. Haha. Mr Duck is his new favourite toy. 
+![IMG_7384.jpg](IMG_7384.jpg "IMG_7384.jpg")
 
 ## THIS WEEK WITH BRADLEY
 Bradley and I attended a baby massage class with my mothers group this week. He seemed to quite like it so I’ve kept it up for about 5 minutes a day when he wakes and goes to sleep. 
