@@ -13,6 +13,8 @@ On a final note, it is clear that Bradley now recognises people like Dad. When P
 
 ## THIS WEEK WITH BRADLEY
 This week Bradley has enjoyed Angela and George’s company. He’s also had a lovely time with his Dad in the pool and other babies down in Manly.
-![003.jpg](003.jpg "003.jpg")
+![IMG_7618.jpg](IMG_7618.jpg "IMG_7618.jpg")
+![IMG_7590.jpg](IMG_7590.jpg "IMG_7590.jpg")
+![IMG_7576.jpg](IMG_7576.jpg "IMG_7576.jpg")
 
 I found some excellent toy bargains this week so play time at home has been a bit more entertaining. He really likes the stacking boxes and knocking down the towers I make. Nana introduced that fun game to him last month but he’s more into it now.
