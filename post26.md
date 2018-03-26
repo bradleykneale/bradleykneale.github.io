@@ -15,6 +15,5 @@ This week Bradley and I attended the church Playgroup down in Manly. It was buzz
 Pete had a mini long weekend away so I had a go at being single mum and it was hard work. My diet and hygiene went out the window! Nonetheless Bradley and I had lovely days out with walks and picnics. 
 ![IMG_7674.jpg](IMG_7674.jpg "IMG_7674.jpg")
 ![IMG_7690.jpg](IMG_7690.jpg "IMG_7690.jpg")
-![10.jpg](10.jpg "10.jpg")
 
 Angela and George visited yesterday. They took him out without me for the first time. He got a bit teary by the end but i guess thats to be expected. It was worth a shot!  
