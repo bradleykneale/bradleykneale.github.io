@@ -2,7 +2,7 @@
 
 ## BRADLEY'S DEVELOPMENT
 This week Bradley is continuing to get better at sitting. I created colour themed baskets for him and he is very content sitting up and sifting through them. We’ve only explored the green one so far so he’s got yellow and blue to look forward to. Its lovely watching his attention span and curiosity grow.
-![IMG_8642.jpg](IMG_8642.jpg "IMG_8642.jpg")
+![IMG_7730.jpg](IMG_7730.jpg "IMG_7730.jpg")
 
 Bradley is starting to enjoy a little rougher play...not too rough. He giggles when bouncing up and down on my knees and other activities like that. He also seems to be very interested in faces now. He loves looking at and touching my face and now clearly recognises the faces in his toys as he smiles and sometimes chuckles at them which he didn’t do before. 
 
@@ -14,6 +14,7 @@ This week Bradley and I attended the church Playgroup down in Manly. It was buzz
 
 Pete had a mini long weekend away so I had a go at being single mum and it was hard work. My diet and hygiene went out the window! Nonetheless Bradley and I had lovely days out with walks and picnics. 
 ![IMG_7674.jpg](IMG_7674.jpg "IMG_7674.jpg")
+![IMG_7690.jpg](IMG_7690.jpg "IMG_7690.jpg")
 ![10.jpg](10.jpg "10.jpg")
 
 Angela and George visited yesterday. They took him out without me for the first time. He got a bit teary by the end but i guess thats to be expected. It was worth a shot!  
