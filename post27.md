@@ -1,7 +1,7 @@
 # WEEK 26 (27.03.18)
 
 ## BRADLEY'S DEVELOPMENT
-Bradley can now confidently sit by himself. Hooray!
+Bradley can now confidently sit by himself so we took this milestone photo to celebrate. Hooray!
 ![IMG_7893.jpg](IMG_7893.jpg "IMG_7893.jpg")
 
 Bradley is great at shaking his rattles now too! I made him a few more shakers with bottles, rice and pom-poms and he’s getting very good at waving them around. He definitely enjoys making noise and loves banging the whisk on a bowl and tapping the computer keyboard too.
