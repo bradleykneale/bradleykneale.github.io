@@ -19,6 +19,7 @@ We also made our first trip to the city and met Pete on his lunch break. It’s 
 ![101.jpg](101.jpg "101.jpg")
 
 Play wise, we have enjoyed playing with the computer keyboard and more colour themed baskets. We found Bradley an awesome FREE teddy during our local council cleanup too.
+![IMG_8912.jpg](IMG_8912.jpg "IMG_8912.jpg")
 ![102.jpg](102.jpg "102.jpg")
 
 On a final note, I’ll be blogging on a monthly basis now so please come back in May for the April highlights x 
