@@ -11,7 +11,7 @@ Bradley still seems happiest when standing. He just loves it! We now do couch st
 Bradley has started making more talking noises in the last few days. More BaBa type noises. There’s no clear first word yet though. It feels really amazing how quickly everything is happening.
 
 ## THIS WEEK WITH BRADLEY
-This week we went to a couple of rhyme times at local libraries and met a few new mums too. We also attended a friends wedding at Bradley’s Head. Bradley started making noises at the beginning of the ceremony so I whisked him away quickly. We sadly didn’t see much of it! 
+This week we went to a couple of rhyme times at local libraries and met a few new mums too. We also attended a friend's wedding at Bradley’s Head. Bradley started making noises at the beginning of the ceremony so I whisked him away quickly. We sadly didn’t see much of it! 
 ![IMG_8174.jpg](IMG_8174.jpg "IMG_8174.jpg")
 ![IMG_8189.jpg](IMG_8189.jpg "IMG_8189.jpg")
 
