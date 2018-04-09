@@ -2,7 +2,7 @@
 
 ## BRADLEY'S DEVELOPMENT
 Bradley turned six months this week! We celebrated by playing with blue jelly.
-![Six Months BW.jpg](Six Months BW.jpg "Six Months BW.jpg")
+![103BW.jpg](103BW.jpg "103BW.jpg")
 ![IMG_8113.jpg](IMG_8113.jpg "IMG_8113.jpg")
 
 Bradley still seems happiest when standing. He just loves it! We now do couch standing every day. 
@@ -16,9 +16,9 @@ This week we went to a couple of rhyme times at local libraries and met a few ne
 ![IMG_8189.jpg](IMG_8189.jpg "IMG_8189.jpg")
 
 We also made our first trip to the city and met Pete on his lunch break. It’s still scorching hot down under so Bradley enjoyed splashing around in the Darling Harbour park.
-![IMG_8697.jpg](IMG_8697.jpg "IMG_8697.jpg")
+![101.jpg](101.jpg "101.jpg")
 
 Play wise, we have enjoyed playing with the computer keyboard and more colour themed baskets. We found Bradley an awesome FREE teddy during our local council cleanup too.
-![IMG_8912.jpg](IMG_8912.jpg "IMG_8912.jpg")
+![102.jpg](102.jpg "102.jpg")
 
 On a final note, I’ll be blogging on a monthly basis now so please come back in May for the April highlights x 
