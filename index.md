@@ -25,5 +25,5 @@
 - [WEEK 24 - 13.03.18](post25.md)
 - [WEEK 25 - 20.03.18](post26.md)
 - [WEEK 26 - 27.03.18](post27.md)
-- [WEEK 27 - 02.04.18 - Six Months](post28.md)
-- [APRIL HIGHLIGHTS - 6 Months](post29.md)
+- [WEEK 27 - 02.04.18](post28.md)
+- [APRIL HIGHLIGHTS - Six Months](post29.md)
