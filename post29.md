@@ -3,7 +3,6 @@
 Hello and welcome to the first monthly update. 
 
 ## BRADLEY'S DEVELOPMENT
-Hello and welcome to the first monthly update. 
 
 This month Bradley turned six months. He passed the six month GP and paediatrician check with flying colours and didn’t cry too too much with the jabs. He weighed in at 8.5kg and measured 72cm tall. He’s a big boy! 
 ![103BW.jpg](103BW.jpg "103BW.jpg")
