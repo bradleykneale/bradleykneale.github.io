@@ -14,6 +14,7 @@ Bradley is a lot more vocal now. He babbles to Pete and I and can say DaDa nice 
 
 Bradley loves to play. He loves the ‘where is Bradley’ game, being chased by Pete, peekaboo, playing with water, reading books (especially Spot books), being sung to (a sailor went to sea sea sea) and particularly enjoys the alphabet song and alphabet posters on the wall.
 ![IMG_8469.jpg](IMG_8469.jpg "IMG_8469.jpg")
+![IMG_9470.jpg](IMG_9470.jpg "IMG_9470.jpg")
 
 Bradley’s first tooth has now poked through (24.04). It’s not completely up yet so it’s a little hard to see. But you can definitely feel it when he bites. 
 ![IMG_8613.jpg](IMG_8613.jpg "IMG_8613.jpg")
