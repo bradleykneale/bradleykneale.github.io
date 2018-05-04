@@ -5,7 +5,6 @@ Hello and welcome to the first monthly update.
 ## BRADLEY'S DEVELOPMENT
 Hello and welcome to the first monthly update. 
 
-Development
 This month Bradley turned six months. He passed the six month GP and paediatrician check with flying colours and didn’t cry too too much with the jabs. He weighed in at 8.5kg and measured 72cm tall. He’s a big boy! 
 ![103BW.jpg](103BW.jpg "103BW.jpg")
 
@@ -13,7 +12,6 @@ Bradley now sits confidently by himself and is on his way to crawling. He often 
 ![IMG_9209.jpg](IMG_9209.jpg "IMG_9209.jpg")
 
 Bradley is a lot more vocal now. He babbles to Pete and I and can say DaDa nice and clearly (20.04). 
-![IMG_8550.jpg](IMG_8550.jpg "IMG_8550.jpg")
 
 Bradley loves to play. He loves the ‘where is Bradley’ game, being chased by Pete, peekaboo, playing with water, reading books (especially Spot books), being sung to (a sailor went to sea sea sea) and particularly enjoys the alphabet song and alphabet posters on the wall.
 ![IMG_8469.jpg](IMG_8469.jpg "IMG_8469.jpg")
@@ -27,7 +25,7 @@ Bradley loves to look and smile at people and we often make a few friends on the
 
 Bradley now eats three small meals a day. They usually tend to be fruit and yogurt mash for breakfast, meat and veg purée for lunch and dinner. He loves his yogurt and eats most foods given to him. No bad reactions yet and still a few more things to try. We’ve tried a few pre made packet foods when out and about and he does seem to prefer those to my cooking! 
 ![IMG_8311.jpg](IMG_8311.jpg "IMG_8311.jpg")
-![IMG_9252.jpg](IMG_9252.jpg "IMG_9252.jpg")
+![IMG_9252.JPG](IMG_9252.JPG "IMG_9252.JPG")
 
 ## ACTIVITIES THIS MONTH
 This month we have attend more play groups, are regulars at the local library sing songs and have enjoyed many local walks and charity shop outings. We also went to a BBQ hosted by one of the mums in my mothers group. Men were invited for the first time so it was great getting to meet everyone’s partners. 
@@ -38,7 +36,6 @@ This month we have attend more play groups, are regulars at the local library si
 
 George and Angela have visited and played with Bradley on a weekly basis. Bradley had his first go in a little tricycle at theirs. He seemed to enjoy it! 
 ![IMG_8392.jpg](IMG_8392.jpg "IMG_8392.jpg")
-![IMG_8174.jpg](IMG_8174.jpg "IMG_8174.jpg")
 
 Bradley also received his first passport in the post. 
 ![passport.jpg](passport.jpg "passport.jpg")
