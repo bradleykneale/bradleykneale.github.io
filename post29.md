@@ -14,7 +14,6 @@ Bradley is a lot more vocal now. He babbles to Pete and I and can say DaDa nice 
 
 Bradley loves to play. He loves the ‘where is Bradley’ game, being chased by Pete, peekaboo, playing with water, reading books (especially Spot books), being sung to (a sailor went to sea sea sea) and particularly enjoys the alphabet song and alphabet posters on the wall.
 ![IMG_8469.jpg](IMG_8469.jpg "IMG_8469.jpg")
-![IMG_8620.jpg](IMG_8620.jpg "IMG_8620.jpg")
 
 Bradley’s first tooth has now poked through (24.04). It’s not completely up yet so it’s a little hard to see. But you can definitely feel it when he bites. 
 ![IMG_8613.jpg](IMG_8613.jpg "IMG_8613.jpg")
@@ -37,6 +36,6 @@ George and Angela have visited and played with Bradley on a weekly basis. Bradle
 ![IMG_8392.jpg](IMG_8392.jpg "IMG_8392.jpg")
 
 Bradley also received his first passport in the post. 
-![passport.jpg](passport.jpg "passport.jpg")
+![passport1.jpg](passport1.jpg "passport1.jpg")
 
 On a sad and final note, we all attended uncle Frank’s funeral. It was a sad day but it was nice for Bradley to see the Malones and meet other relatives and family friends for the first time.
