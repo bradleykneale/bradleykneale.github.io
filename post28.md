@@ -1,9 +1,6 @@
 # WEEK 27 (02.04.18)
 
 ## BRADLEY'S DEVELOPMENT
-Bradley turned six months this week!Look how far we've come....
-![103BW.jpg](103BW.jpg "103BW.jpg")
-
 We had our six months GP check and jabs and Bradley passed with flying colours. Bradley now weighs 8.5kg (1.3 Stones) and is 72 cm tall (he is in the 90th percentile for height). 
 ![IMG_9084.JPG](IMG_9084.JPG "IMG_9084.JPG")
 
