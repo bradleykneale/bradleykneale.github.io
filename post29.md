@@ -18,7 +18,7 @@ Bradley loves to play. He loves the ‘where is Bradley’ game, being chased by
 Bradley’s first tooth has now poked through (24.04). It’s not completely up yet so it’s a little hard to see. But you can definitely feel it when he bites. 
 ![IMG_8613.jpg](IMG_8613.jpg "IMG_8613.jpg")
 
-Bradley loves to look and smile at people and we often make a few friends on the bus! An old man even gave Bradley $5 on the bus for his smile (30.04). It’s nice to see him interact with the community.
+Bradley loves to look and smile at people and we often make a few friends on the bus! An old man even gave Bradley $5 on the bus for his smile (30.04).
 ![IMG_8550.jpg](IMG_8550.jpg "IMG_8550.jpg")
 
 Bradley now eats three small meals a day. They usually tend to be fruit and yogurt mash for breakfast, meat and veg purée for lunch and dinner. He loves his yogurt and eats most foods given to him. No bad reactions yet and still a few more things to try. We’ve tried a few pre made packet foods when out and about and he does seem to prefer those to my cooking! 
