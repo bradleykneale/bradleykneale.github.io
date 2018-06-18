@@ -53,8 +53,8 @@ The Royal Wedding on TV
 Park fun
 ![IMG_9905.jpg](IMG_9905.jpg "IMG_9905.jpg")
 ![IMG_0101.jpg](IMG_0101.jpg "IMG_0101.jpg")
-![IMG_0191.jpg](IMG_0191.jpg "IMG_0191.jpg")
 ![10c65a9e-51f8-477d-acf6-4fb0332dd2bf.jpg](10c65a9e-51f8-477d-acf6-4fb0332dd2bf.jpg "10c65a9e-51f8-477d-acf6-4fb0332dd2bf.jpg")
+![IMG_0191.jpg](IMG_0191.jpg "IMG_0191.jpg")
 ![IMG_0139.jpg](IMG_0139.jpg "IMG_0139.jpg")
 
 London Sightseeing
@@ -81,12 +81,11 @@ Friend visits
 ![IMG_0755.jpg](IMG_0755.jpg "IMG_0755.jpg")
 ![3e939fa9-5c94-4cab-8e9d-abace078e962.jpg](3e939fa9-5c94-4cab-8e9d-abace078e962.jpg "3e939fa9-5c94-4cab-8e9d-abace078e962.jpg")
 
-Paige and Doug were delightful cousins to Bradley. Paige sang Bradley songs (twinkle twinkle) and played endless games of peekaboo. On a further note, Dougie seemed to enjoy being bigger than someone. Haha!
-
 I just want to say a big thank you to everyone for having us at such short notice. You helped make this trip a memorable one. We had a fabulous time thanks to you. 
 Mum and Dad - Thanks for hosting.
 Bob - Thanks for entertaining and feeding us. 
 Granny - Thanks for your company and for all the cups of tea!  
+Paige and Doug - Thanks for being wonderful cousins to Bradley. Thank you for singing songs and playing peekaboo!
 
 Bradley and I miss you all already x
 
