@@ -82,11 +82,15 @@ Friend visits
 ![3e939fa9-5c94-4cab-8e9d-abace078e962.jpg](3e939fa9-5c94-4cab-8e9d-abace078e962.jpg "3e939fa9-5c94-4cab-8e9d-abace078e962.jpg")
 
 I just want to say a big thank you to everyone for having us at such short notice. You helped make this trip a memorable one. We had a fabulous time thanks to you. 
+
 Mum and Dad - Thanks for hosting.
-Bob - Thanks for entertaining and feeding us. 
+
+Bob - Thanks for entertaining and feeding us.
+
 Granny - Thanks for your company and for all the cups of tea!  
+
 Paige and Doug - Thanks for being wonderful cousins to Bradley. Thank you for singing songs and playing peekaboo!
 
-Bradley and I miss you all already x
 
+Bradley and I miss you all already x
 ![99d34792-c5a5-4882-b139-0d565ee07152.jpg](99d34792-c5a5-4882-b139-0d565ee07152.jpg "99d34792-c5a5-4882-b139-0d565ee07152.jpg")
