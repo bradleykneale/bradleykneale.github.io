@@ -28,3 +28,4 @@
 - [WEEK 27 - 02.04.18](post28.md)
 - [APRIL HIGHLIGHTS - Six Months](post29.md)
 - [MAY HIGHLIGHTS - Seven Months](post30.md)
+- [JUNE HIGHLIGHTS - Eight Months](post31.md)
