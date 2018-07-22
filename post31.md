@@ -9,6 +9,7 @@ Bradley is now a very fast crawler. He is confident on his feet and happily walk
 We’ve tried getting Bradley to crawl through a play tunnel but he’s not too keen on that just yet. He’s managed going through a few times but he needed A LOT of encouragement. 
 ![IMG_1076.jpg](IMG_1076.jpg "IMG_1076.jpg")
 ![IMG_1120.jpg](IMG_1120.jpg "IMG_1120.jpg")
+![crawl.jpg](crawl.jpg "crawl.jpg")
 
 Bradley’s vocabulary has improved. He can now say a ‘gat’ sound in addition to ‘DaDa’ and uses this most often when pointing. Yes...pointing. Bradley has learnt to point and loves to point at anything that interests him. It’s lovely to see him communicating and showing an interest in the world around him. 
 
