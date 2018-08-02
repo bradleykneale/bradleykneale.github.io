@@ -3,11 +3,12 @@
 ## BRADLEY'S DEVELOPMENT
 
 This month Bradley turned nine months!
-![Nine Months.jpg](Nine Months.jpg "Nine Months.jpg")
+![Nine.jpg](Nine.jpg "Nine.jpg")
 
 I know I’m biased but I have to say that Bradley is turning into a smart little boy.
 
 Bradley’s speech is now really coming along. He points and says ‘Gat’ to most things. He often says a dog/duck sounding word whilst pointing to a dog/duck. He says Grr when pointing to the Gruffalo. He’s also started sayings tricker sounding word ‘Ticker ticker’ (20.07). He talks the most when he’s tired so the last half hour of his day is usually a very chatty time for him. 
+![IMG_0568.jpg](IMG_0568.jpg "IMG_0568.jpg")
 
 Bradley’s comprehension is also rapidly improving. He seems to now understand Dada, Mama, Gruffalo, lion, dog, clap, wave, tree, eye, point and up. He responds appropriately to those words (I.e by pointing or clapping when asked). He’s especially very good at pointing to Dada and trees when asked (from 01.07) and is getting good at waving and pointing to eyes too. Bradley did his first proper wave on cue on the bus when I asked him to on the 10th July.
 ![IMG_0907.jpg](IMG_0907.jpg "IMG_0907.jpg")
@@ -32,11 +33,9 @@ On a final note, Bradley is starting to have some very cute predictable behaviou
 - If you say ‘Where is Bradley?’, he freezes and smiles thinking you can’t see him. He might even be kind enough to shout ‘Gat’ to Help you
 - If he sees a dog, he will point and stare for as long as possible
 
-![IMG_0568.jpg](IMG_0568.jpg "IMG_0568.jpg")
-
 
 ## ACTIVITIES THIS MONTH
-OUT and ABOUT
+OUT & ABOUT
 
 We continue to visit beaches and parks pretty much every day. Its a great place for crawling practice and exploring. Bradley loves to have a swing too. It’s also super quiet and relaxing for me as Australians don’t seem interested in visiting the beach in the winter. We often have the beach to ourselves.  
 ![20180705_141224.jpg](20180705_141224.jpg "20180705_141224.jpg")
@@ -55,6 +54,7 @@ We also continue to meet up with my mothers group and other local mums on a regu
 Bradley had his first swim in an indoor swimming pool on 1st July and he loved it. It got a little chilly after 15 mins as just splashing around so we will find a little wetsuit for him next time so we can stay in a bit longer. 
 
 
+
 AT HOME
 
 At home, Bradley’s favourite activity is story time. He squeals with excitement when a book is taken out of the book box or off the shelf. It’s adorable. He loves all Spot books, I Am Hungry (a big pop out lion at the end), ABC zoo, Where is the Green Sheep, The Gruffalo, Where is Baby, Dear Zoo and Whose Bottom just to name a few. At the end of July, he’s started being too scared to lift the flaps in Where’s Spot because he knows there are lions and bears underneath. Aw! He’s very good at lifting all the flaps and he’s also quite good at tearing them out. Grrrr. 
@@ -71,7 +71,7 @@ We had a few celebrations this month. We had a lovely meal out with George and A
 ![IMG_0755.jpg](IMG_0755.jpg "IMG_0755.jpg")
 
 ## BRADLEY LOVES
-At the moment Bradley loves; 
+At the moment Bradley loves: 
 - Lions (in books)
 - Spot
 - Lift the flap books
@@ -92,6 +92,7 @@ At the moment Bradley loves;
 - Birds
 - Dogs
 - And us of course ;)
+
 ![IMG_0110.jpg](IMG_0110.jpg "IMG_0110.jpg")
 
 Come back next month xxx
