@@ -7,7 +7,7 @@ This month Bradley turned nine months!
 
 I know I’m biased but I have to say that Bradley is turning into a smart little boy.
 
-Bradley’s speech is now really coming along. He points and says ‘Gat’ to most things. He often says a dog/duck sounding word whilst pointing to a dog/duck. He says Grr when pointing to the Gruffalo. He’s also started sayings tricker sounding word ‘Ticker ticker’ (20.07). He talks the most when he’s tired so the last half hour of his day is usually a very chatty time for him. 
+Bradley’s speech is really coming along. He points and says ‘Gat’ to most things. He often says a dog/duck sounding word whilst pointing to a dog/duck. He says Grr when pointing to the Gruffalo. He’s also started saying ‘Ticker ticker’ (20.07). He talks the most when he’s tired so the last half hour of his day is usually a very chatty time for him. 
 
 Bradley’s comprehension is also rapidly improving. He seems to now understand Dada, Mama, Gruffalo, lion, dog, clap, wave, tree, eye, point and up. He responds appropriately to those words (I.e by pointing or clapping when asked). He’s especially very good at pointing to Dada and trees when asked (from 01.07) and is getting good at waving and pointing to eyes too. Bradley did his first proper wave on cue on the bus when I asked him to on the 10th July.
 ![IMG_0907.jpg](IMG_0907.jpg "IMG_0907.jpg")
@@ -66,7 +66,7 @@ Now that Bradley is getting a little older, we have been able to start doing som
 ![IMG_0620.jpg](IMG_0620.jpg "IMG_0620.jpg")
 ![IMG_0454.jpg](IMG_0454.jpg "IMG_0454.jpg")
 
-We had a few celebrations this month. We had a lovely meal out with George and Angela to celebrate George’s 75th birthday. We also tried to get on a little train but the queues were long and Bradley was about to nod off. Next time! We also went to little Spencer’s 1st Birthday party. It was Bradley’s first kids party in Australia. 
+We had a few celebrations this month. We had a lovely meal out with George and Angela to celebrate George’s 75th birthday. We tried to get on a little kids sit on steam train but the queues were long and Bradley was about to nod off. Next time! We also went to little Spencer’s 1st Birthday party. It was Bradley’s first kids party in Australia. 
 ![IMG_0755.jpg](IMG_0755.jpg "IMG_0755.jpg")
 
 ## BRADLEY LOVES
