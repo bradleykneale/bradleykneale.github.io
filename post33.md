@@ -21,7 +21,7 @@ His speech is also becoming more varied. He now says a croc sounding word for cr
 
 ## MOVEMENT
 
-Bradley is now a lot more agile. He has become a super fast crawler and is great at climbing onto and off the sofas (29.08), over cushions and through tunnels. 
+Bradley is a lot more agile. He has become a super fast crawler and is great at climbing onto and off the sofas (29.08), over cushions and through tunnels. 
 ![SOFA.jpg](SOFA.jpg "SOFA.jpg")
 
 Bradley has not walked unaided yet but it doesn’t feel far off. He has managed to walk without my hands the other day (29.08) whilst leaning on my legs as I edged backwards. 
@@ -61,16 +61,16 @@ In addition to teddies, rolling things and holes, Bradley is very interested in 
 
 We have all been fairly poorly this month so we’ve not been as active as usual. However we have enjoyed attending library sing along sessions and going to the zoo, beaches and parks. We go out everyday for at least a couple of hours otherwise we go a little potty. Bradley is happiest outdoors just like me. He loves pointing to the trees and playing in the sand and dirt. 
 ![ZOO.jpg](ZOO.jpg "ZOO.jpg")
+![IMG_2594.jpg](IMG_2594.jpg "IMG_2594.jpg")
+![IMG_2926.jpg](IMG_2926.jpg "IMG_2926.jpg")
 ![IMG_2582.jpg](IMG_2582.jpg "IMG_2582.jpg")
 ![IMG_2860.jpg](IMG_2860.jpg "IMG_2860.jpg")
-![IMG_2594.jpg](IMG_2594.jpg "IMG_2594.jpg")
 
 Pete turned 41 this month. We went along to a pop up petting zoo and had a beautiful beach walk to celebrate. Pete got many gifts. Homemade vouchers, clothes, baby books and a homemade card too. 
 ![IMG_1235.jpg](IMG_1235.jpg "IMG_1235.jpg")
 ![IMG_1271.jpg](IMG_1271.jpg "IMG_1271.jpg")
-![IMG_2655.jpg](IMG_2655.jpg "IMG_2655.jpg")
+![IMG_2655.JPG](IMG_2655.JPG "IMG_2655.JPG")
 ![IMG_1246.jpg](IMG_1246.jpg "IMG_1246.jpg")
-![IMG_2926.jpg](IMG_2926.jpg "IMG_2926.jpg")
 
 George and Angela have helped out a lot over the month, especially when we’ve been ill so that’s been a big help. 
 ![IMG_2915.jpg](IMG_2915.jpg "IMG_2915.jpg")
