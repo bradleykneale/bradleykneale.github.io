@@ -1,9 +1,9 @@
 # AUGUST
 
-## BRADLEY'S DEVELOPMENT
-
 This month Bradley turned ten months!
-![Nine.jpg](Nine.jpg "Nine.jpg")
+![IMG_1489.jpg](IMG_1489.jpg "IMG_1489.jpg")
+
+## BRADLEY'S DEVELOPMENT
 
 ## LANGUAGE
 
@@ -16,26 +16,28 @@ Bradley’s comprehension continues to improve. Here is the latest list of words
 - Butterfly, leaf, car, ear, sky, sun (26.08).
 
 His speech is also becoming more varied. He now clearly says Grrr in reference to the Gruffalo and says a croc sounding word for crocodile. 
-![IMG_0907.jpg](IMG_0907.jpg "IMG_0907.jpg")
+![IMG_1222.jpg](IMG_1222.jpg "IMG_1222.jpg")
 
 
 ## MOVEMENT
 
 Bradley is now a lot more agile. He has become a super fast crawler and is great at climbing onto and off the sofas (29.08), over cushions and through tunnels. 
+![SOFA.jpg](SOFA.jpg "SOFA.jpg")
 
 Bradley has not walked unaided yet but it doesn’t feel far off. He has managed to walk without my hands the other day (29.08) whilst leaning on my legs as I edged backwards. 
-![IMG_0907.jpg](IMG_0907.jpg "IMG_0907.jpg")
+![IMG_1029.jpg](IMG_1029.jpg "IMG_1029.jpg")
 
 
 ## PLAY
 
 I think the main improvement this month has been Bradley’s ability to play and even initiate games. He loves to find hidden toys (09.08) and play peekaboo games with scarves/container lids. He is great at starting peekaboo games himself (23.08).
+![IMG_2940.jpg](IMG_2940.jpg "IMG_2940.jpg")
 
 He’s also just recently starting playing hide and seek (28.08) by hiding under the table, behind chairs and climbing frames in the playground. He sits very still and smiles a lot until found. It’s very sweet.
  
 On a final note, Bradley is now able to amuse himself a little bit now. It’s wonderful. The little windows of time now allow me to make lunch for myself! Amazing! I found Bradley an activity table this month for $5 and that has helped a lot. He can put his toys in it and it is the perfect height for leaning on.
-![IMG_0907.jpg](IMG_0907.jpg "IMG_0907.jpg")
-
+![IMG_1364.jpg](IMG_1364.jpg "IMG_1364.jpg")
+![IMG_1414.jpg](IMG_1414.jpg "IMG_1414.jpg")
 
 ## INTERESTS
 
@@ -46,28 +48,35 @@ Bradley’s little eyes light up if we read a book about or point to a picture/t
 Bradley has shown a huge interest in rolling things this month (18.08). We have spent many hours rolling film rolls, cars, tubes etc.
 
 Bradley also discovered holes this month! He initiated putting sticks through a hole in the park playground on 20th and there has been no turning back. He has now mastered and enjoys posting small toys in baby wipe box (29.08).
+![IMG_3001.jpg](IMG_3001.jpg "IMG_3001.jpg")
 
 In addition to teddies, rolling things and holes, Bradley is very interested in people. It is quite easy these days to take him out and about on the buses. He will start waving to people as we get on and makes a lot of friends that way! 
-![IMG_0907.jpg](IMG_0907.jpg "IMG_0907.jpg")
-
 
 
 ## ACTIVITIES THIS MONTH
 
 We have all been fairly poorly this month so we’ve not been as active as usual. However we have enjoyed attending library sing along sessions and going to the zoo, beaches and parks. We go out everyday for at least a couple of hours otherwise we go a little potty. Bradley is happiest outdoors just like me. He loves pointing to the trees and playing in the sand and dirt. 
+![ZOO.jpg](ZOO.jpg "ZOO.jpg")
+![IMG_2582.jpg](IMG_2582.jpg "IMG_2582.jpg")
+![IMG_2860.jpg](IMG_2860.jpg "IMG_2860.jpg")
+![IMG_2594.jpg](IMG_2594.jpg "IMG_2594.jpg")
 
 Pete turned 41 this month. We went along to a pop up petting zoo and had a beautiful beach walk to celebrate. Pete got many gifts. Homemade vouchers, clothes, baby books and a homemade card too. 
+![IMG_2926.jpg](IMG_2926.jpg "IMG_2926.jpg")
+![IMG_2648.jpg](IMG_2648.jpg "IMG_2648.jpg")
+![IMG_1271.jpg](IMG_1271.jpg "IMG_1271.jpg")
+![IMG_1246.jpg](IMG_1246.jpg "IMG_1246.jpg")
 
 George and Angela have helped out a lot over the month, especially when we’ve been ill so that’s been a big help. 
-![IMG_0907.jpg](IMG_0907.jpg "IMG_0907.jpg")
-
+![IMG_2915.jpg](IMG_2915.jpg "IMG_2915.jpg")
+![IMG_2716.jpg](IMG_2716.jpg "IMG_2716.jpg")
 
 ## HELLO PLAYTIME
 
 As mentioned last month, Bradley and I also have a lot of fun indoors. Feeling keen to share and document my play ideas with Bradley, I decided to make a baby activity website called Hello Playtime. It is now LIVE so please check it out and send through your feedback. 
 
 HelloPlaytime.com
-![IMG_0907.jpg](IMG_0907.jpg "IMG_0907.jpg")
+![IMG_2548.jpg](IMG_2548.jpg "IMG_2548.jpg")
 
 xxxx
 
