@@ -30,3 +30,4 @@
 - [MAY HIGHLIGHTS - Seven Months](post30.md)
 - [JUNE HIGHLIGHTS - Eight Months](post31.md)
 - [JULY HIGHLIGHTS - Nine Months](post32.md)
+- [AUGUST HIGHLIGHTS - Ten Months](post33.md)
