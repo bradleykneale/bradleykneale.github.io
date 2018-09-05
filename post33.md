@@ -68,9 +68,9 @@ We have all been fairly poorly this month so we’ve not been as active as usual
 
 Pete turned 41 this month. We went along to a pop up petting zoo and had a beautiful beach walk to celebrate. Pete got many gifts. Homemade vouchers, clothes, baby books and a homemade card too. 
 ![IMG_1235.jpg](IMG_1235.jpg "IMG_1235.jpg")
-![IMG_1271.jpg](IMG_1271.jpg "IMG_1271.jpg")
 ![IMG_2655.JPG](IMG_2655.JPG "IMG_2655.JPG")
 ![IMG_1246.jpg](IMG_1246.jpg "IMG_1246.jpg")
+![IMG_1271.jpg](IMG_1271.jpg "IMG_1271.jpg")
 
 George and Angela have helped out a lot over the month, especially when we’ve been ill so that’s been a big help. 
 ![IMG_2915.jpg](IMG_2915.jpg "IMG_2915.jpg")
