@@ -38,6 +38,7 @@ He’s also just recently starting playing hide and seek (28.08) by hiding under
 ![Hide2.jpg](Hide2.jpg "Hide2.jpg")
  
 On a final note, Bradley is now able to amuse himself a little bit now. It’s wonderful. The little windows of time now allow me to make lunch for myself! Amazing! I found Bradley an activity table this month for $5 and that has helped a lot. He can put his toys in it and it is the perfect height for leaning on.
+![table1.jpg](table1.jpg "table1.jpg")
 ![IMG_1364.jpg](IMG_1364.jpg "IMG_1364.jpg")
 ![IMG_1414.jpg](IMG_1414.jpg "IMG_1414.jpg")
 
