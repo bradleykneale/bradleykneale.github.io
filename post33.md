@@ -30,10 +30,12 @@ Bradley has not walked unaided yet but it doesn’t feel far off. He has managed
 
 ## PLAY
 
-I think the main improvement this month has been Bradley’s ability to play and even initiate games. He loves to find hidden toys (09.08) and play peekaboo games with scarves/container lids. He is great at starting peekaboo games himself (23.08).
+I think the main improvement this month has been Bradley’s ability to play and even initiate games. He loves to find hidden toys (09.08) and play peekaboo games with scarves/container lids. He is great at starting peekaboo games himself (23.08)...even though it's very easy to see him. He often likes to put the items over his head like below.  
 ![IMG_2940.jpg](IMG_2940.jpg "IMG_2940.jpg")
+![HIDE.jpg](HIDE.jpg "HIDE.jpg")
 
 He’s also just recently starting playing hide and seek (28.08) by hiding under the table, behind chairs and climbing frames in the playground. He sits very still and smiles a lot until found. It’s very sweet.
+![Hide2.jpg](Hide2.jpg "Hide2.jpg")
  
 On a final note, Bradley is now able to amuse himself a little bit now. It’s wonderful. The little windows of time now allow me to make lunch for myself! Amazing! I found Bradley an activity table this month for $5 and that has helped a lot. He can put his toys in it and it is the perfect height for leaning on.
 ![IMG_1364.jpg](IMG_1364.jpg "IMG_1364.jpg")
@@ -44,6 +46,7 @@ On a final note, Bradley is now able to amuse himself a little bit now. It’s w
 It’s been delightful to see Bradley’s interests growing. 
 
 Bradley’s little eyes light up if we read a book about or point to a picture/toy of a lion, crocodile or the Gruffalo. Bradley has also grown quite attached to a little frog and hedgehog teddy. His favourite at the moment though is a big pink teddy which Angela initially bought for Paige and Doug on a previous visit. It’s the first thing he wants to see and kiss in the morning. He will happily kiss teddy but not mummy or daddy. Grrr! 
+![book.jpg](book.jpg "book.jpg")
 
 Bradley has shown a huge interest in rolling things this month (18.08). We have spent many hours rolling film rolls, cars, tubes etc.
 
@@ -62,6 +65,7 @@ We have all been fairly poorly this month so we’ve not been as active as usual
 ![IMG_2594.jpg](IMG_2594.jpg "IMG_2594.jpg")
 
 Pete turned 41 this month. We went along to a pop up petting zoo and had a beautiful beach walk to celebrate. Pete got many gifts. Homemade vouchers, clothes, baby books and a homemade card too. 
+![IMG_1235.jpg](IMG_1235.jpg "IMG_1235.jpg")
 ![IMG_1271.jpg](IMG_1271.jpg "IMG_1271.jpg")
 ![IMG_2655.jpg](IMG_2655.jpg "IMG_2655.jpg")
 ![IMG_1246.jpg](IMG_1246.jpg "IMG_1246.jpg")
