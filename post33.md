@@ -9,7 +9,7 @@ This month Bradley turned ten months!
 
 Bradley’s comprehension continues to improve. Here is the latest list of words that he understands; 
 
-- Dada, Mama, Bradley, dog, lion, ball, clap, Gruffalo, wave, tree, point, up and belly button we’re his first words. He clearly pointed to Dad, Mum and himself when asked to on 9th August. 
+- Dada, Mama, Bradley, dog, lion, ball, clap, Gruffalo, wave, tree, point, up and belly button were his first words. He clearly pointed to Dad, Mum and himself when asked to on the 9th.
 
 - Star, water, banana, elephant, crocodile, duck, eye, bee, bear, cuddle, kiss (16.08). 
 
