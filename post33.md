@@ -80,11 +80,9 @@ George and Angela have helped out a lot over the month, especially when we’ve 
 
 As mentioned last month, Bradley and I also have a lot of fun indoors. Feeling keen to share and document my play ideas with Bradley, I decided to make a baby activity website called Hello Playtime. It is now LIVE so please check it out and send through your feedback. 
 
-HelloPlaytime.com
+[HelloPlaytime.com](http://HelloPlaytime.com)
 
 ![IMG_2548.jpg](IMG_2548.jpg "IMG_2548.jpg")
-
-xxxx
 
 Bye for now
 
