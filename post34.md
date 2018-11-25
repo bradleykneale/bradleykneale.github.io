@@ -18,6 +18,8 @@ He continues to understand new words too even though he cannot say them yet. Wor
 ## INTERESTS
 
 Bradley is especially interested in the moon, planes and helicopters this month and points them out in the sky (13.09).
+![IMG_3403.jpg](IMG_3403.jpg "IMG_3403.jpg")
+![IMG_3414.jpg](IMG_3414.jpg "IMG_3414.jpg")
 
 He also seems to enjoy the fine detail in books. For example, he will point out illustrations of small butterflies and bugs. 
 ![mother.jpg](mother.jpg "mother.jpg")
