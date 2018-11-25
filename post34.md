@@ -39,9 +39,9 @@ We had our first road trip with Bradley to the Blue Mountains (07.09). He slept 
 ![IMG_1995.jpg](IMG_1995.jpg "IMG_1995.jpg") 
 
 We then embarked on a much bigger outing to Seoul on 21st September. Bradley did really well on the flight and coped with all the sight seeing and family visits. He was a little shy at times and had a few minor melt downs on the longer days but that was to be expected.
-![IMG_3659.jpg](IMG_3659.jpg "IMG_3659.jpg")
 
 Bradley most enjoyed pointing out the buses, clocks and doors as they opened and closed on the tube. He also liked being carried by Pete, playing on the grass outside of town (we did not find any in the city) and climbing all over Patrick and Sue’s coffee table when he got the chance! 
+![IMG_3659.jpg](IMG_3659.jpg "IMG_3659.jpg")
 ![IMG_3224.jpg](IMG_3224.jpg "IMG_3224.jpg")
 ![IMG_3124.jpg](IMG_3124.jpg "IMG_3124.jpg")
 ![IMG_2911.jpg](IMG_2911.jpg "IMG_2911.jpg")
@@ -51,7 +51,7 @@ Bradley most enjoyed pointing out the buses, clocks and doors as they opened and
 
 The family highlight was of course Patrick and Sue’s wedding. We all got dressed up in traditional gear and attended the beautiful ceremony in one of Seoul’s historic temples. It was a fantastic day. 
 ![IMG_3980.jpg](IMG_3980.jpg "IMG_3980.jpg")
-[IMG_3268.jpg](IMG_3268.jpg "IMG_3268.jpg")
+![IMG_3268.jpg](IMG_3268.jpg "IMG_3268.jpg")
 ![IMG_3285.jpg](IMG_3285.jpg "IMG_3285.jpg")
 
 On a final note, Bradley was a hit in Seoul and received lots of smiles, waves, balloons and even money! 
