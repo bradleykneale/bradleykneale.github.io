@@ -22,13 +22,14 @@ Bradley is especially interested in the moon, planes and helicopters this month 
 ![IMG_3414.jpg](IMG_3414.jpg "IMG_3414.jpg")
 
 He also seems to enjoy the fine detail in books. For example, he will point out illustrations of small butterflies and bugs. 
-![mother.jpg](mother.jpg "mother.jpg")
+
 
 ## MOVEMENT
 
 Bradley is now able to crawl all the way down the stairs on his front (12.09). He hasn’t made any steps.
 ![IMG_1859.jpg](IMG_1859.jpg "IMG_1859.jpg")
 ![IMG_3488.jpg](IMG_3488.jpg "IMG_3488.jpg")
+
 
 ## ACTIVITIES THIS MONTH
 
