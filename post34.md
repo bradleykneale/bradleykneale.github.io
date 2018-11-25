@@ -52,8 +52,8 @@ Bradley most enjoyed pointing out the buses, clocks and doors as they opened and
 
 The family highlight was of course Patrick and Sue’s wedding. We all got dressed up in traditional gear and attended the beautiful ceremony in one of Seoul’s historic temples. It was a fantastic day. 
 ![IMG_3980.jpg](IMG_3980.jpg "IMG_3980.jpg")
-![IMG_3268.jpg](IMG_3268.jpg "IMG_3268.jpg")
 ![IMG_3285.jpg](IMG_3285.jpg "IMG_3285.jpg")
+![IMG_3268.jpg](IMG_3268.jpg "IMG_3268.jpg")
 
 On a final note, Bradley was a hit in Seoul and received lots of smiles, waves, balloons and even money! 
 ![IMG_5388.jpg](IMG_5388.jpg "IMG_5388.jpg")
