@@ -11,14 +11,14 @@ We were lucky enough to spend most of this month in sunny (yes sunny) England. I
 - Donna and Mum did really well organising two lovely parties for Bradley. Thank you! 
 - Bradley coped with all the new faces and merrily played with his cousins (without me) at the second party
 - He got spoilt with lovely gifts and enjoyed the cake and trifle on offer. Yum! 
-- It was great catching up with aunts, uncles and cousins.
+- It was great catching up with aunts, uncles, cousins and granny.
 ![IMG_3385.jpg](IMG_3385.jpg "IMG_3385.jpg")
 ![IMG_4202.jpg](IMG_4202.jpg "IMG_4202.jpg")
 ![IMG_3395.jpg](IMG_3395.jpg "IMG_3395.jpg")
 
 ### CENTRE PARCS
 - We had a lovely five day break in Centre Parcs with Mum, Dad, Donna, Craig, Paige and Doug. 
-- Bradley loved splashing around in the warm swimming pools. He had a blast. He also enjoyed squirrel watching with Dougie 
+- Bradley loved splashing around in the warm swimming pools. He had a blast. He also enjoyed squirrel watching with Doug 
 - I enjoyed a three hour spa break with Mum. Bradley didn’t notice I was gone thanks to Donna, Dad and Craig.
 ![IMG_3450.jpg](IMG_3450.jpg "IMG_3450.jpg")
 ![IMG_4258.jpg](IMG_4258.jpg "IMG_4258.jpg")
@@ -40,14 +40,13 @@ We were lucky enough to spend most of this month in sunny (yes sunny) England. I
 - Bradley was able to point out each family member when asked. I didn’t expect that at all
 - Doug called him ‘naughty baby’ for a while but warmed to him by the end. Bradley kept trying to hug Doug on our last morning there. It was very sweet and Doug found it funny after a while. 
 - We had a lot of lovely park visits including Crystal Palace Park, Kelsey Park and Coombe Woods. We also had a fab day out to Dulwich Park with Granny.
-![IMG_4660.jpg](IMG_4660.jpg "IMG_4660.jpg")
+![45cb712a-70b5-4b91-ac03-d8d0290d3f5c.jpg](45cb712a-70b5-4b91-ac03-d8d0290d3f5c.jpg "45cb712a-70b5-4b91-ac03-d8d0290d3f5c.jpg")
+![94fa7780-d0be-4c21-9ace-6d4f201ef6f8.jpg](94fa7780-d0be-4c21-9ace-6d4f201ef6f8.jpg "94fa7780-d0be-4c21-9ace-6d4f201ef6f8.jpg")
 ![IMG_3619.jpg](IMG_3619.jpg "IMG_3619.jpg")
 ![IMG_3624.jpg](IMG_3624.jpg "IMG_3624.jpg")
 ![IMG_3683.jpg](IMG_3683.jpg "IMG_3683.jpg")
 ![IMG_3815.jpg](IMG_3815.jpg "IMG_3815.jpg")
 ![IMG_4740.jpg](IMG_4740.jpg "IMG_4740.jpg")
-![45cb712a-70b5-4b91-ac03-d8d0290d3f5c.jpg](45cb712a-70b5-4b91-ac03-d8d0290d3f5c.jpg "45cb712a-70b5-4b91-ac03-d8d0290d3f5c.jpg")
-![94fa7780-d0be-4c21-9ace-6d4f201ef6f8.jpg](94fa7780-d0be-4c21-9ace-6d4f201ef6f8.jpg "94fa7780-d0be-4c21-9ace-6d4f201ef6f8.jpg")
 
 ### FRIEND TIME
 - We were lucky enough to see Anna, Tanya, Saira and Chantelle on this trip. We managed to tie in London sightseeing too. It’s always a treat visiting the massive London parks. 
