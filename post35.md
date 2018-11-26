@@ -7,7 +7,7 @@ We’ve made it to one year! Well done Bradley and well done us as parents :)
 
 We were lucky enough to spend most of this month in sunny (yes sunny) England. It was a wonderful visit filled with fun activities. Here are the highlights….
 
-# BRADLEY'S BIRTHDAY PARTIES
+### BRADLEY'S BIRTHDAY PARTIES
 - Donna and Mum did really well organising two lovely parties for Bradley. Thank you! 
 - Bradley coped with all the new faces and merrily played with his cousins (without me) at the second party
 - He got spoilt with lovely gifts and enjoyed the cake and trifle on offer. Yum! 
