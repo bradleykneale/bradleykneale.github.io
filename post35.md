@@ -12,6 +12,7 @@ We were lucky enough to spend most of this month in sunny (yes sunny) England. I
 - Bradley coped with all the new faces and merrily played with his cousins (without me) at the second party
 - He got spoilt with lovely gifts and enjoyed the cake and trifle on offer. Yum! 
 - It was great catching up with aunts, uncles, cousins and granny.
+![IMG_3366.jpg](IMG_3366.jpg "IMG_3366.jpg")
 ![IMG_3385.jpg](IMG_3385.jpg "IMG_3385.jpg")
 ![IMG_4202.jpg](IMG_4202.jpg "IMG_4202.jpg")
 ![IMG_3395.jpg](IMG_3395.jpg "IMG_3395.jpg")
@@ -31,6 +32,7 @@ We were lucky enough to spend most of this month in sunny (yes sunny) England. I
 
 ### HALLOWEEN
 - Mum put together an amazing early Halloween party for the family. We all loved it especially Paige. 
+![IMG_3698.jpg](IMG_3698.jpg "IMG_3698.jpg")
 ![IMG_4660.jpg](IMG_4660.jpg "IMG_4660.jpg")
 
 ### FAMILY TIME
