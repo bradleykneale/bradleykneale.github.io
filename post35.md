@@ -55,8 +55,8 @@ We were lucky enough to spend most of this month in sunny (yes sunny) England. I
 ### FRIEND TIME
 - We were lucky enough to see Anna, Tanya, Saira and Chantelle on this trip. We managed to tie in London sightseeing too. It’s always a treat visiting the massive London parks. 
 ![25474b4f-8024-4335-bd0a-940420a5688c.jpg](25474b4f-8024-4335-bd0a-940420a5688c.jpg "25474b4f-8024-4335-bd0a-940420a5688c.jpg")
-![IMG_4642.jpg](IMG_4642.jpg "IMG_4642.jpg")
-![IMG_4546.jpg](IMG_4546.jpg "IMG_4546.jpg")
+![IMG_4642.JPG](IMG_4642.JPG "IMG_4642.JPG")
+![IMG_4546.JPG](IMG_4546.JPG "IMG_4546.JPG")
 
 
 ## BRADLEY'S DEVELOPMENT
