@@ -1,6 +1,6 @@
 # OCTOBER
 
-We made it to one year! Well done Bradley and well done us as parents :)
+We have made it to one year! Well done Bradley and well done us as parents :)
 ![IMG_3588.jpg](IMG_3588.jpg "IMG_3588.jpg")
 
 ## ACTIVITIES THIS MONTH
