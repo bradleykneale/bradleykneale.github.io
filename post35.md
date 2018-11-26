@@ -19,9 +19,9 @@ We were lucky enough to spend most of this month in sunny (yes sunny) England. I
 
 ### CENTRE PARCS
 - We had a lovely five day break in Centre Parcs with Mum, Dad, Donna, Craig, Paige and Doug. 
-- Bradley loved splashing around in the warm swimming pools. He had a blast. He also enjoyed squirrel watching with Doug 
+- Bradley loved splashing around in the warm swimming pools. He had a blast. 
+- Bradley also enjoyed squirrel watching with Doug 
 - I enjoyed a three hour spa break with Mum. Bradley didn’t notice I was gone thanks to Donna, Dad and Craig.
-![IMG_3450.jpg](IMG_3450.jpg "IMG_3450.jpg")
 ![IMG_4258.jpg](IMG_4258.jpg "IMG_4258.jpg")
 ![IMG_4275.jpg](IMG_4275.jpg "IMG_4275.jpg")
 ![IMG_4374.jpg](IMG_4374.jpg "IMG_4374.jpg")
@@ -29,6 +29,8 @@ We were lucky enough to spend most of this month in sunny (yes sunny) England. I
 ![ca453412-9ba6-4d44-a57f-48d5c727fa0c.jpg](ca453412-9ba6-4d44-a57f-48d5c727fa0c.jpg "ca453412-9ba6-4d44-a57f-48d5c727fa0c.jpg")
 ![IMG_4287.jpg](IMG_4287.jpg "IMG_4287.jpg")
 ![IMG_4344.jpg](IMG_4344.jpg "IMG_4344.jpg")
+![IMG_3450.jpg](IMG_3450.jpg "IMG_3450.jpg")
+![IMG_4433.jpg](IMG_4433.jpg "IMG_4433.jpg")
 
 ### HALLOWEEN
 - Mum put together an amazing early Halloween party for the family. We all loved it especially Paige. 
