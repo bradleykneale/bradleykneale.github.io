@@ -1,5 +1,7 @@
-Respiratory Issue
---------------------
+
+
+Video examples of Respiratory Issue
+-------------------------------------
 
 *March 20th 2021*
 
@@ -16,7 +18,5 @@ Respiratory Issue
 [Apnoea then twitch then waking](https://youtu.be/Ica5CZ01iCk)
 
 
-Swallowing Issue
---------------------
-
-
+Video examples of Swallowing Issue
+------------------------------------
