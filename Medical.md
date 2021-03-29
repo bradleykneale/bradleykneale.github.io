@@ -9,7 +9,7 @@ Video examples of Respiratory Issue
 
 [Harsh exhale](https://youtu.be/4UMuJ2TZE3A)
 
-*March 21 2021*
+*March 21st 2021*
 
 [Work of Breathing](https://youtu.be/nt48c0MaXEw)
 
