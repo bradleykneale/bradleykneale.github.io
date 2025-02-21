@@ -33,7 +33,3 @@
 - [AUGUST HIGHLIGHTS - Ten Months](post33.md)
 - [SEPTEMBER HIGHLIGHTS - Eleven Months](post34.md)
 - [OCTOBER HIGHLIGHTS - Twelve Months](post35.md)
-
--------------------------------
-- [Medical](medical.md)
--------------------------------
